@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cllarinha02
+- 👋 Hi, me chamoo @cllarinha02  !
 - 👀 I’m interested in ;aprender mais sobre a vida etc.
 - 🌱 I’m currently learning a lidar com pessoas no convivo social.
 - 💞️ I’m looking to collaborate on : com algo q me faca bem.
