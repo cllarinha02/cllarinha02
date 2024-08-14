@@ -2,7 +2,7 @@
 - 👀 I’m interested in ;aprender mais sobre a vida etc.
 - 🌱 I’m currently learning a lidar com pessoas no convívio social.
 - 💞️ I’m looking to collaborate on : com algo q me faca bem.
-- 📫 How to reach me : pelo whast
+- 📫 How to reach me : pelo link
 - 😄 
   
 
